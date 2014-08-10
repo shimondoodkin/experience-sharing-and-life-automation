@@ -11,6 +11,18 @@ Belif is helps skip places in life you don't you dont have an updated state for 
 
 Hope is what shapes your dreams and directs you in life it is good idea to learn about yourself in this area that others shape you with that power over you because you dont understan yourself well and have hard time to notice hope kicked in.
 
+Beliving stupidly is stupidity. People should understand why it is so and how it works. Everything in this book should come from understanding so people can make their own decisions wicely specific to their situation.
+
+How to do like I do
+Fork, Edit and Submit a pull request.
+
+Donate 
+
+Bitcoin: 1QJybGtq3wA3vz8izWvDMRTsrQL3RVDK9T
+
+Send money with Paypal.com to:
+helpmepro1@gmail.com
+
 Probably there will be several larger topics
 
 * Introduction and Mindset
