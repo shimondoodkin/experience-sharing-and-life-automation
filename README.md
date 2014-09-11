@@ -32,3 +32,7 @@ Probably there will be several larger topics
 * Choosing a wife
 * Rasing Kids
 * Dealing with problems in life
+* Sustainable strategies
+  * when you put something in fridge you should know when you will take it out
+  * time to rest
+  * plan to be disposed after use
